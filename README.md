@@ -6,4 +6,4 @@
 - 💬 Ask me about New Ideas
 - 📫 How to reach me: https://wa.me/94712935722
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Im All Rounding on IT, Electronics, Mechanical things and Bio Tech
+- ⚡ Fun fact: Im Exploring on IT, Electronics, Mechanical things and Bio Tech for fun!
