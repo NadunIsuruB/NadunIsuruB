@@ -1,6 +1,6 @@
 ### Hi there, Its Nadun Nimalarathna! 👋 
 
-- 🔭 I’m currently working on Haulmatic Technologies
+- 🔭 I’m currently working at Haulmatic Technologies
 - 🌱 I’m currently exploring Computer science and Engineering
 - 👯 I’m looking to collaborate on Open-Source Projects
 - 💬 Ask me about New Ideas
